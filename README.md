@@ -1,6 +1,6 @@
 # youtube video downloader allows you download youtube videos for free. To get this started: 
 
-1. Set up your python environment with the right variables and run the program.
+1. Set up your python environment with the right packages and run the program.
 
 2. Goto https://youtube.com and search for the video you want to download
 
