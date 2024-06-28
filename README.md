@@ -11,5 +11,5 @@
 5. Enjoy😈😈😈😈😈😈
 
 
-******This is an Art work. I am not responsible for any copyright infringement from the use of this Youtube downloader.
+******This is an Art work. AIF or I is not responsible for any copyright infringement from the use of this Youtube downloader.
 Kindly refer to Youtube's Terms of Service (TOS)******
