@@ -10,5 +10,6 @@
 
 5. Enjoy😈😈😈😈😈😈
 
-This is an Art work. I am not responsible for any copyright infringement from the use of this Youtube downloader.
-Kindly refer to Youtube's Terms of Service (TOS)
+
+******This is an Art work. I am not responsible for any copyright infringement from the use of this Youtube downloader.
+Kindly refer to Youtube's Terms of Service (TOS)******
